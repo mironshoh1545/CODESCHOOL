@@ -1,2 +1,2 @@
-CODESCHOOLUZ zo'r 
-nimaga kerak?
+CODESCHOOLUZ zo'r
+Endi o'rganmoqdaman
